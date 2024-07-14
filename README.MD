@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **getting my degree**
 
-- ⚡ Fun fact **I am a fun guy**
+- ⚡ Fun fact **I am a fun guy I love playing basketball too,**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
